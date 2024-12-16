@@ -8,3 +8,4 @@ Ces dossiers ont été réalisés dans le cadre de ma préparation à la soutena
 - Le **dossier professionnel** contient mes réalisations et permet de démontrer ma pratique professionnelle.
 - La **diapo de présentation** au format PDF.
 
+Laisser une etoile si le dossier vous a servit 😺 🤌🏾
